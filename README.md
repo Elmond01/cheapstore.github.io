@@ -1,2 +1,2 @@
 thanks God for everything 
-I love God
+I love you God
